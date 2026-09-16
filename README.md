@@ -8,7 +8,7 @@ Question 2 - Paraglider control
 <img width="766" height="744" alt="Figure_1" src="https://github.com/user-attachments/assets/19d5705e-772f-4314-bfef-e19e7d92f8ed" />
 
 <img width="681" height="628" alt="Figure_2" src="https://github.com/user-attachments/assets/69c71535-724a-4f63-862f-47bb40d366af" />
-
+(yea this is chatgpt slop i uploaded for funsies :P)
 
 
 
